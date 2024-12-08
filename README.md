@@ -2,7 +2,7 @@
 - 👀 I’m interested in sex
 - 🌱 I’m currently learning sex
 - 💞️ I’m looking to collaborate on sex
-- 📫 How to reach me ...
+- 📫 How to reach me make me cum
 - 😄 Pronouns: rapist
 - ⚡ Fun fact: i sex
 
